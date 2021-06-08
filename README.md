@@ -1,1 +1,1 @@
-my life at ax is becoming better everyday
+my life at alx is becoming better everyday
